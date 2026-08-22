@@ -1,3 +1,5 @@
-XD Team is building a diverse global social media platform.Open up an inclusive and free social media platform where you can use XD to post any content you're interested in and share your life experiences.
+XD團隊正在建立一個多元化的全球社群媒體平台
 
-If you're interested, please download and use it XD. If you encounter any problems, our support team is available 24/7 to assist you via email.
+官網：https://xdmv.app
+
+我們致力於打造一個包容且免費的社群媒體平台，讓您可以使用XD發布任何您感興趣的內容，並分享您的生活體驗，如果您對此感興趣，可以訪問官網使用我們的程序，XDMEET團隊歡迎您！
